@@ -74,3 +74,8 @@ The Yegg on rubber soles comes creeping
 Inside the house when it is late,
 And while the occupants are sleeping,
 Removes the heirlooms and the plate.
+
+The Zouave used to war and battle
+Would sooner take flower then life
+Not scarcely has begun no prattle
+When he impliyes the happy life. 
